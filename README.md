@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yell0wrat
 - 👀 I’m interested in video editing, sitting at my desk all day, coding, sitting at my desk all day
-- 🌱 I’m currently learning: PYTHON!!!!!!!!!
+- 🌱 I’m currently learning: PYTHON!!!!!!!!! and also java
 - 💞️ I’m looking to collaborate on: probably nothing right now because i SUCK at doing programming but i can probably find bugs or something...
 - 📫 How to reach me: twitterrrr: @Yell0wRat, discord: yell0wrat
 - 😄 Pronouns: she/her, it/its
